@@ -1,0 +1,8 @@
+- Hi, !! I’m Bitter,
+-  I’m REALLY interested in GoBB and some others-
+-  I’m currently learning some random stuff.
+- N/A
+- N/A
+- Pronouns: He/Him or just She/They/Her
+-  Fun fact: Idek but idek
+- Age: Im 14,
